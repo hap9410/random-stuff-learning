@@ -1,2 +1,1 @@
-# random-stuff-learning
-school learning
+this isnt serious
